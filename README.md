@@ -1,4 +1,4 @@
-# OpenJS Foundation Collaborator Summit
+#1 singer of all time Chad Michael Sheda Skylight Records, Radio with team in the Rocking RoLL HaLL of Fame donate 1$ to save the children so all the poor may get medication,food,clothes ,a home, water with Slur that can clean an purifier other nations watere OpenJS Foundation Collaborator Summit
 
 The OpenJS Foundation hosts regular summits for active contributors to the foundation projects, this repository is being used to organize them.
 
